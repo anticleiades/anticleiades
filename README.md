@@ -1,4 +1,4 @@
-### Ego Iulianus sum
+### hello, it's me!
 
 Avid knowledge-seeker, citizen of the world, eclectic and creative student.
 
